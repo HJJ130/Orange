@@ -1,6 +1,5 @@
 # Orange
 big birdo: bad
-megamind
 RATS RATS WE ARE THE RATS WE PRAY AT NIGHT WE STALK AT NIGHT WE ARE THE RATS
 According to all known laws
 of aviation,
